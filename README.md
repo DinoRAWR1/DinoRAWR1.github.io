@@ -1,7 +1,6 @@
 # DinoRAWR1.github.io
 Gabriel Estolan SF. Ranin
 # Dinosaur
-![image](https://github.com/DinoRAWR1/DinoRAWR1.github.io/assets/150876774/5d4a0828-3af7-4cb4-858e-a12fdbedcab0)
 
 ![image](https://github.com/DinoRAWR1/DinoRAWR1.github.io/assets/150876774/fb539cf7-4663-4d53-bdb8-aa26c06028cd) ![image](https://github.com/DinoRAWR1/DinoRAWR1.github.io/assets/150876774/978e1279-4aea-43ac-9c74-a8c187a4b489)
 
