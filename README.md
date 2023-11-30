@@ -20,4 +20,6 @@ Dinosaurs are a diverse group of reptiles of the clade Dinosauria. They first ap
 
 ![image](https://github.com/DinoRAWR1/DinoRAWR1.github.io/assets/150876774/b60e8eba-b55a-4a81-a6a4-fde1f000a563)
 
-3.
+![image](https://github.com/DinoRAWR1/DinoRAWR1.github.io/assets/150876774/5d4a0828-3af7-4cb4-858e-a12fdbedcab0)
+
+**Thank you!!! RAWR!**
